@@ -1,4 +1,3 @@
-<h1><img width="1200" height="200" alt="image" src="https://github.com/user-attachments/assets/bc43e2aa-fcdd-4892-a189-c1b44e1edfab" />
 <h1></h1>
 
 𝘿𝙄𝘿 ꜱʏꜱᴛᴇᴍ. ᴜꜱᴜᴀʟʟʏ ᴠᴇʀʏ 𝘀𝘁𝗮𝗻𝗱𝗼𝗳𝗳𝗶𝘀𝗵 𝘢𝘯𝘥 𝘤𝘢𝘯 𝘤𝘰𝘮𝘦 𝘰𝘧𝘧 𝘢𝘴 𝐫𝐮𝐝𝐞.
