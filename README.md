@@ -7,7 +7,7 @@
 
 ​🇩​​🇴​ 𝗻𝗼𝘁 𝘐𝘯𝘵𝘦𝘳𝘢𝘤𝘵 - ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ ꜱᴜᴄʜ ᴀꜱ ​🇭​​🇴​​🇲​​🇴​​🇵​​🇭​​🇴​​🇧​​🇮​​🇦​, 𝘚𝘦𝘹𝘪𝘴𝘮, ʏᴏᴜ ɢᴇᴛ ᴛʜᴇ ᴘᴏɪɴᴛ.
 
-**WE DON'T BELIEVE IN TOUCH TRIGGERS. You're just sensitive and delusional :3**
+**WE DON'T BELIEVE IN TOUCH TRIGGERS.**
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31xngphweoffqg3cwjtswcycjghm&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xngphweoffqg3cwjtswcycjghm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false">
