@@ -1,5 +1,5 @@
 <h1></h1>
-Hi! You can just call me Zanka. ^_^ I'm the Host and will be the person you seen most of the time. 
+Hi! You can just call me Zanka. ^_^ I'm the Host and will be the person you see most of the time. 
 <h2><h2>
   Main Boundaries for both myself and the rest of our system❗❗⬇️
 <h2></h2>
