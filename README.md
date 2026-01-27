@@ -1,14 +1,24 @@
 <h1></h1>
-<img width="399" height="361" alt="image" src="https://github.com/user-attachments/assets/7abf2e58-1529-4725-87de-64440271ef62" />
-
-𝘿𝙄𝘿 ꜱʏꜱᴛᴇᴍ. ᴜꜱᴜᴀʟʟʏ ᴠᴇʀʏ 𝘀𝘁𝗮𝗻𝗱𝗼𝗳𝗳𝗶𝘀𝗵 𝘢𝘯𝘥 𝘤𝘢𝘯 𝘤𝘰𝘮𝘦 𝘰𝘧𝘧 𝘢𝘴 𝐫𝐮𝐝𝐞. I'm **transgender**. ^_^ He/Him only pls :)
+Hi! You can just call me Zanka. ^_^ I'm the Host and will be the person you seen most of the time. 
+<h2><h2>
+  Main Boundaries for both myself and the rest of our system❗❗⬇️
 <h2></h2>
+  
+  *Please refrain from anything sexual towards or near the littles, that's pretty obvious.*
+  
+  *The mention of vomit or anything slightly resembling puking triggers us bad. DNI if you don't respect that.*
 
-𝘽𝙚𝙛𝙤𝙧𝙚 ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ - ᴡᴇ'ʀᴇ 𝟫𝟫.𝟫𝟫% ᴀʟᴡᴀʏꜱ ​🇼​​🇮​​🇹​​🇭​ ​🇴​​🇺​​🇷​ 𝐩𝐚𝐫𝐭𝐧𝐞𝐫 𝘰𝘳 𝘮𝘰𝘰𝘵𝘪𝘦𝘴. 𝒮𝑜, ᴡᴇ ᴘʀᴏʙᴀʙʟʏ ᴡᴏɴ'ᴛ ɪɴᴛᴇʀᴀᴄᴛ. ᴡᴇ ᴀʟꜱᴏ 𝘴𝘵𝘳𝘶𝘨𝘨𝘭𝘦. ᴀ ʟᴏᴛ. ᴡɪᴛʜ ɪᴅᴇɴᴛɪꜰʏɪɴɢ ᴡʜᴏ ɪꜱ ꜰʀᴏɴᴛɪɴɢ. ʜᴇɴᴄᴇ ᴛʜᴇ ꜰʀᴇQᴜᴇɴᴛ ᴘᴏɴʏ ꜱᴡɪᴛᴄʜᴇꜱ.
+  *Cuddling and/or hiding behind us is appreciated ONLY from our partner and close friends. ^_^;*
 
-​🇩​​🇴​ 𝗻𝗼𝘁 𝘐𝘯𝘵𝘦𝘳𝘢𝘤𝘵 - ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ ꜱᴜᴄʜ ᴀꜱ ​🇭​​🇴​​🇲​​🇴​​🇵​​🇭​​🇴​​🇧​​🇮​​🇦​, 𝘚𝘦𝘹𝘪𝘴𝘮, ʏᴏᴜ ɢᴇᴛ ᴛʜᴇ ᴘᴏɪɴᴛ.
+  *Copying ponies =✖️(again, unless you are our partner or close friend of ours.) BUT INSPO IS OKAY😋👍*
 
-**WE DON'T BELIEVE IN TOUCH TRIGGERS.**
+  *Don't beg for socials. We won't share them until we trust you.* /aimed
+
+  *Interacting(such as whispers) is a-okay unless stated otherwise in our name.*
+
+  **WE DON'T BELIEVE IN TOUCH TRIGGERS** *_but_* *if they make you more comfortable have fun.*
+
+  *Hate towards any of our headmates will get you blocked or hid for 15 minutes😓.*
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31xngphweoffqg3cwjtswcycjghm&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31xngphweoffqg3cwjtswcycjghm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false">
