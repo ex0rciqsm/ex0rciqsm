@@ -1,10 +1,12 @@
-<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/e44d490b-b310-4819-a2ec-a9037a19f61f"/>
+<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/623055ee-25fc-4554-b981-49957824f1df" />
+
 
 <h1><p align="center">Hello!</h1>
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-<img width="1000" height="400" alt="image" src="https://github.com/user-attachments/assets/e6ddf899-16bd-4849-8b72-1a2820bd9313" />
+<img width="1000" height="400" alt="image" src="https://github.com/user-attachments/assets/21f5af52-c4a0-44f8-ae29-ddd0e93060ab" />
+
 
 
 ----------------------------------------------------------------------------------------------------------------------------------------
@@ -20,7 +22,7 @@
 
 -The mention of vomit/puking & rape triggers me bad. I'll hide you for 15 minutes if I see the mentions of it.😓
 
--I **AM** a Fictionkin! Doubles I don't quite mind :) However,, Jabber fictives/fictionkins make me slightly uncomfortable if interactions are romantic, for I am happily taken by my girlfriend @IWantAC00lName :D
+-I **AM** a Fictionkin! Would like to be treated as such <3
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
