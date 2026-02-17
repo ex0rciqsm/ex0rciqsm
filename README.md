@@ -1,4 +1,5 @@
-<p align="center"><img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/823f6fec-1b56-4f67-8121-8ba26fc5e0d5" />
+<p align="center"><img width="500" height="348" alt="image" src="https://github.com/user-attachments/assets/158dbfab-fec6-485a-9658-d6bb472f8588" />
+
 
 
 
@@ -6,7 +7,8 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/702d0fd1-17ab-4877-8743-42a2f47ef9d3" />
+<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/93442098-bd75-492b-838b-c5dc7edf6508" />
+
 
 
 
