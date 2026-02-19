@@ -20,7 +20,7 @@
 
 <h1><p align="center">Introduction of some sorts</h1>
 
-I'm Zanka! Or Chihiro. Or whatever you wanna call me!!<img width="50" height="42" alt="image" src="https://github.com/user-attachments/assets/8af8c2fb-441f-4fa7-9747-1c56315ceb35" /> I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/7cc480b7-f54c-4234-a4e8-6c4aa3eee097" />
+I'm Zanka, Till, or Chihiro! Or whatever you wanna call me!!<img width="50" height="42" alt="image" src="https://github.com/user-attachments/assets/8af8c2fb-441f-4fa7-9747-1c56315ceb35" /> I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/7cc480b7-f54c-4234-a4e8-6c4aa3eee097" />
 
 
 
