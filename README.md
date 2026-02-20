@@ -12,7 +12,7 @@
 
 <h1><p align="center">About me;</h1>
 
-I'm Zanka, Till, or Ollie! Or whatever you wanna call me!!<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/f4764ffe-6afe-4c23-b064-4ee83e2a548c" />
+I'm Zanka, Till, or Ollie! I'm NOT the Prototype(even though canonically I am). I'm a Fictkin of BEFORE I was.<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/f4764ffe-6afe-4c23-b064-4ee83e2a548c" />
  I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.
 
 
