@@ -1,16 +1,8 @@
-<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/094dafe2-e733-4243-9720-7dc7d025de75" />
-
-
-
-
-
-
-<h1><p align="center">Hello!<img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/2c0b0cb9-e6fd-44dd-97b7-1d8ffb4a523b" />
-</h1>
+<p align="center"><img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/e539b9e3-61ea-4e80-af9a-94e16d9f78ca" />
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-<p align="center"><img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/9d462048-308f-4ed7-a750-357318bdf304" />
+<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/9bddb9b2-2eef-4f08-babc-78b0eb109a12" />
 
 
 
@@ -18,9 +10,10 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 
-<h1><p align="center">Introduction of some sorts</h1>
+<h1><p align="center">About me;</h1>
 
-I'm Zanka, Till, Harlequin, or Chihiro! Or whatever you wanna call me!!<img width="50" height="42" alt="image" src="https://github.com/user-attachments/assets/8af8c2fb-441f-4fa7-9747-1c56315ceb35" /> I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/7cc480b7-f54c-4234-a4e8-6c4aa3eee097" />
+I'm Zanka, Till, or Ollie! Or whatever you wanna call me!!<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/f4764ffe-6afe-4c23-b064-4ee83e2a548c" />
+ I'm usually always above Spawn on the cliff on ss2 with my friends :D I'm very prone to going quiet whenever someone talks to me because of my social anxiety, sorry :( Besides that, I'm super talkative once I'm comfortable with someone😓 If that bothers you, please hide me or refrain interacting with me. I **DON'T** really appreciate someone trying to cuddle me without asking either, especially if I don't know you. Eventhoughtheanswerwillbenoanyway.
 
 
 
@@ -28,7 +21,8 @@ I'm Zanka, Till, Harlequin, or Chihiro! Or whatever you wanna call me!!<img widt
 
 <h1><p align="center">DNI.</h1>
 
-Basic DNI such as racism, homophobia, you get the point. I don't mind whispers or interactions UNLESS I'm with friends and/or my partner. I don't really appreciate the people that bother either or don't respect boundaries. :( While I don't believe in touch triggers, that should be no reason you bully/harass somebody. <img width="50" height="40" alt="image" src="https://github.com/user-attachments/assets/d4e4d41d-c03d-4f5e-ae53-182ff8e0d00f" />
+Basic DNI such as racism, homophobia, you get the point. I don't mind whispers or interactions UNLESS I'm with friends and/or my partner. I don't really appreciate the people that bother either or don't respect boundaries. :( While I don't believe in touch triggers, that should be no reason you bully/harass somebody. <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b2d3b4a6-1352-4e80-9508-f8ad46c51e4b" />
+
 
 
 <p align="center">
