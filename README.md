@@ -28,7 +28,7 @@
 
 
 <img width="1000" height="56" alt="image" src="https://github.com/user-attachments/assets/b3778d19-e5fa-4465-81fd-e29bc58c932c" />
-/>
+
 
 
 <h1><p align="center">DNI.</h1>
