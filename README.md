@@ -15,7 +15,7 @@
  
 <h1><p align="center">About me;</h1>
 
--I'm Zanka, Ollie, or Till! Or whatever idc what you call me :3
+-I'm Zanka, Ollie, Juni'chiro, or Till! Or whatever idc what you call me :3
 
 -I'm uh. 16. Soon to be 17,, yay!! NO I'M NOT UNC.
 
