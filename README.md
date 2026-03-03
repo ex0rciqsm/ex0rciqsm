@@ -1,10 +1,16 @@
-<p align="center"><img width="1000" height="253" alt="image" src="https://github.com/user-attachments/assets/d9fcd2fb-d521-49cb-b6c8-572dc0ef2fcf" />
+<p align="center"><img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/956e6c12-8ac0-4bcc-a3cf-d657deeebbd7" />
+
+
 
 <h1><p align="center">Hello!! ^_^<h1>
-<p align="center"><img width="1000" height="66" alt="image" src="https://github.com/user-attachments/assets/945ef5dc-3ac5-4f76-8dd9-a4705ae22c20" />
+<p align="center"><img width="1080" height="220" alt="image" src="https://github.com/user-attachments/assets/2e176af3-0995-4877-a17c-0efb8f6e4e8c" />
 
 
-<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/1ff809cf-d224-4cec-8d79-7c1c634163f8" />
+
+<p align="center"><img width="300" height="500" alt="image" src="https://github.com/user-attachments/assets/4acb3d61-4a3a-4e74-8d6c-9b7d60988e39" />
+
+
+
 
 
 
@@ -26,7 +32,6 @@
 
 
 
-<img width="1280" height="343" alt="image" src="https://github.com/user-attachments/assets/023acdcd-2c9c-4fef-9725-d70cc5f9992b" />
 
 
 
@@ -40,6 +45,7 @@
 
 -Anti-Fullkins, furries, etc etc.
 
+<p align="center"><img width="1000" height="100" alt="image" src="https://github.com/user-attachments/assets/e70f2194-9461-4691-a9c4-af988bdbc678" />
 
 
 
